@@ -64,7 +64,7 @@ HELLO OWNER 👋
 ┃CONNECTED ✅🔥
 ┗━━━━━━━━━━━━━━━
 ▬▬▬▬▬▬▬▬▬▬▬▬
-⛩️ • Creator = `𖥘 WASUKE D KAMADO𖥘`& MURKY GOJO 🦠
+⛩️  Creator = 𖥘 WASUKE D KAMADO𖥘& MURKY GOJO 🦠
 ▬▬▬▬▬▬▬▬▬▬▬▬▬▬
 🦠 || WhattsApp https://chat.whatsapp.com/FBdEuciwT5PD8f85orkgUj
 ▬▬▬▬▬▬▬▬▬▬▬▬▬▬
